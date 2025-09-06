@@ -11,4 +11,6 @@ Email: 231810004[at]smail.nju.edu.cn
 #### Education
 B.E., Journalism, Nanjing University, 2023-2027.
 
+#### Interest
+Photography, table tennis, badminton and playing games. ^ ^
 
