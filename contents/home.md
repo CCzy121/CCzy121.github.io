@@ -12,6 +12,6 @@ Email: 231810004[at]smail.nju.edu.cn
 B.E., Journalism, Nanjing University, 2023-2027.
 
 #### Skills & Interests
-Skilled in interviewing and communication, as well as serious and creative writing.\ 
+Skilled in interviewing and communication, as well as serious and creative writing.
 Photography, table tennis, badminton and playing games are my hobbies. ^ ^
 
