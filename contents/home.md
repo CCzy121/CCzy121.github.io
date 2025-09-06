@@ -8,10 +8,14 @@ She is currently a Grade 3 student  at the College of Journalism and Communicati
 
 Email: 231810004[at]smail.nju.edu.cn
 
+
 #### Education
+
 B.E., Journalism, Nanjing University, 2023-2027.
 
+
 #### Skills & Interests
+
 Skilled in interviewing and communication, as well as serious and creative writing.
 
 Photography, table tennis, badminton and playing games are my hobbies. ^ ^
